@@ -1,0 +1,1 @@
+Link tải model: https://drive.google.com/drive/folders/1UfbkzPiqGYwMrXPbrxSQIaLrsknN0aX-
